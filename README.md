@@ -18,6 +18,8 @@
 
 #### 4. [Relaxing Music Rain](https://youtu.be/q76bMs-NwRk)
 
+#### 5. [SUPER EUROBEAT MIX](https://youtu.be/_JLbaEaIF40)
+
 *WIP*
 
 ---
