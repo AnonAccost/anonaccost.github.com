@@ -1,6 +1,6 @@
 # **Welcome to my page!**
 
-## *Note: this page is still WIP, so expect that this page may have a lot of changes*
+## *Note: this page is still WIP, so expect that this page may have a lot of changes.*
 
 ---
 
