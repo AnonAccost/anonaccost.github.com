@@ -17,15 +17,15 @@
 
 ### Music List:
 
-#### >> `[Jazz Music](https://youtu.be/MYPVQccHhAQ)`
+#### >> [Jazz Music](https://youtu.be/MYPVQccHhAQ)
 
-#### >> `[Famous Classical Music](https://youtu.be/jgpJVI3tDbY)`
+#### >> [Famous Classical Music](https://youtu.be/jgpJVI3tDbY)
 
-#### >> `[MINECRAFT Full Soundtrack](https://youtu.be/rJ2XfjqKJZk)`
+#### >> [MINECRAFT Full Soundtrack](https://youtu.be/rJ2XfjqKJZk)
 
-#### >> `[Relaxing Music Rain](https://youtu.be/q76bMs-NwRk)`
+#### >> [Relaxing Music Rain](https://youtu.be/q76bMs-NwRk)
 
-#### >> `[SUPER EUROBEAT MIX](https://youtu.be/_JLbaEaIF40)`
+#### >> [SUPER EUROBEAT MIX](https://youtu.be/_JLbaEaIF40)
 
 *WIP*
 
