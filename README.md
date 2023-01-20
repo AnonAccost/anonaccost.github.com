@@ -19,7 +19,9 @@
 
 #### >> [Jazz Music](https://youtu.be/MYPVQccHhAQ)
 
-#### >> [Famous Classical Music](https://youtu.be/jgpJVI3tDbY)
+#### >> [The Best of Classical Music](https://youtu.be/jgpJVI3tDbY)
+
+#### >> [Iconic Classical Music](https://youtu.be/-7jjo8UICjQ)
 
 #### >> [MINECRAFT Full Soundtrack](https://youtu.be/rJ2XfjqKJZk)
 
